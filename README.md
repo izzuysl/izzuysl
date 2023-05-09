@@ -1,17 +1,4 @@
-### <div align="center">I am a person with  creativity, always focused on original and self-sacrificing work</div>  
-  
-
--   
-  
-
--   
-  
-
--   
-  
-
--   
-  
+### <div align="center"
 
 <br/>  
 
